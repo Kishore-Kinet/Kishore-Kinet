@@ -21,11 +21,8 @@ Eager to apply my technical knowledge, develop practical skills, and contribute 
 
 ### 🎓 Education
 
-**B.E. — Electronics and Communication Engineering**
-Arifa Institute of Technology, Esanur · `2023 – 2026`
-
-**Higher Secondary School**
-V S Boys Higher Secondary School, Tiruvarur · `2021 – 2023`
+**B.E. — Electronics and Communication Engineering - **
+Arifa Institute of Technology, Esanur · `2023 – 2027`
 
 ---
 
