@@ -21,7 +21,7 @@ Eager to apply my technical knowledge, develop practical skills, and contribute 
 
 ### 🎓 Education
 
-**B.E. — Electronics and Communication Engineering - **
+**B.E. — Electronics and Communication Engineering -**
 Arifa Institute of Technology, Esanur · `2023 – 2027`
 
 ---
